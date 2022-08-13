@@ -1,0 +1,1 @@
+# akore-primary-school
